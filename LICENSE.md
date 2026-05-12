@@ -1,4 +1,4 @@
-# 
+# best new token sniper bot | gas-optimization + front-running is the best new token sniper bot, featuring gas-optimization and front-running. Fast, smart, and optimized for MEV and
 
 
 
